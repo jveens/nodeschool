@@ -1,1 +1,0 @@
-Learning Node at Shopify - Lead by Darcy Clarke
